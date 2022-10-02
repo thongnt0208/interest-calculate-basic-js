@@ -26,6 +26,6 @@ Finish at: August 31, 2022
 ## This product is part of PIEDTeam | HUMANofPIED | PiedToiDay
 
 ## **PIEDTEAM** 
-##### [Facebook: ](https://www.facebook.com/nomadic.lodestar/)
-##### [Group: ](https://www.facebook.com/groups/318166702534463)
-##### [Page: ](https://www.facebook.com/search/top?=pied%20t%E1%BB%9Bi%20%C4%91%C3%A2y)
+##### [Facebook](https://www.facebook.com/nomadic.lodestar/)
+##### [Group](https://www.facebook.com/groups/318166702534463)
+##### [Page](https://www.facebook.com/search/top?=pied%20t%E1%BB%9Bi%20%C4%91%C3%A2y)
