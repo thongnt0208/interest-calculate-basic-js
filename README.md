@@ -1,5 +1,4 @@
 # Interest calculation
-Interest calculation web app built by JS
 
 ## Hello there  :blush: 👋
 
